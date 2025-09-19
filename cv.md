@@ -1,5 +1,5 @@
 ## Full name
-Melukh Daria Pavlovna
+Meliukh Darya Pavlovna
 
 ## Contact information
 - **Phone:** +375 (44) 475-68-99
